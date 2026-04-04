@@ -3,11 +3,8 @@ cần kiến thức gì?
 học bao lâu có thể dev?
 học gì nữ đây?
 dfbvdfv df v
-dfv df
- vdf
- v df
- vdf v
- dfv dfv 
- dfv 
- dfv
-  df vd
+sdvsd v dsv sdv sdv sdv
+ sdv sdv sdv sdv sdvsdv sdv
+  sdv sv sdv sdv sv b db dfb gb
+   dfbdfb dfbdfb dfb dfbd fb db df
+   bdfb dfb db db db db dfb
